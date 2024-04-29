@@ -1,1 +1,1 @@
-# projeto-p-gina-pessoal
+# projeto-pagina-pessoal
